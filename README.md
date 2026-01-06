@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CURV910116HVZRDC19
+CURV910116HVZRDC19
